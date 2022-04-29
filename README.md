@@ -27,6 +27,11 @@ La musique tant réconfortante et nostalgique du marchand de glace se fit entend
 Mais il grandit et grandit jusqu'à atteindre la hauteur du bâtiment, et ce bonhomme tout mignon tout plein se transforma en gloutton cannibale anthropophage tel le Bibendum marshmallow de Ghostbusters! :astonished:
 >>>>>>> c0fba23c700ca58baf9b9dc776f6adae794b7781
 
+On appelle alors, police, pompiers, ambulance, armée, les Men in Black, mais rien ne peut arriver à bout de ce phenomene. <br/>
+Les eleves de BeCode deciderent d'allumer un feu, sortir les brochettes et faire une marshmallow party sur le parking. <br/>
+
+
+
 ###### (a vous la suite) <--- a supprimer bien sur avant de la rajouter à la fin de votre ajout 
 
 
