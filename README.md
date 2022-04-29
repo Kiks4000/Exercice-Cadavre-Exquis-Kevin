@@ -12,7 +12,8 @@ Il rencontra d'autres personnes, toutes venaient d'endroit et de milieu différe
 Ensemble, ils découvrairent l'environnement linux et ses commandes, git et Github, le markdown.<br/>
 Il y a juste un problème, c'est que chez becode, il fait chaud.. Et chaleur plus neige, ça ne fait pas bon ménage.. <br/>
 
-
+On appelle alors, police, pompiers, ambulance, armée, les Men in Black, mais rien ne peut arriver à bout de ce phenomene. <br/>
+Les eleves de BeCode deciderent d'allumer un feu, sortir les brochettes et faire une marshmallow party sur le parking. <br/>
 
 ###### (a vous la suite) <--- a supprimer bien sur avant de la rajouter à la fin de votre ajout 
 
