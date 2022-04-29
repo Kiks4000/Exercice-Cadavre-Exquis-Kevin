@@ -12,7 +12,11 @@ Il rencontra d'autres personnes, toutes venaient d'endroit et de milieu différe
 Ensemble, ils découvrairent l'environnement linux et ses commandes, git et Github, le markdown.<br/>
 Il y a juste un problème, c'est que chez becode, il fait chaud.. Et chaleur plus neige, ça ne fait pas bon ménage.. <br/>
 
-Jean-Jacques ce Mis à fondre et fondre, aux files des heurts le petit bonhomme de neige n'etais plus qui flaque d'eau et de neige fondu plus personne ne neigut attention à lui quand soudain 
+Jean-Jacques ce Mis à fondre et fondre, aux files des heurts le petit bonhomme de neige n'etais plus qui flaque d'eau et de neige fondu plus personne ne neigut attention à lui quand soudain.
+
+La musique tant réconfortante et nostalgique du marchand de glace se fit entendre. Cette musique si entêtante attira à elle par son enfantine magie la flaque qu'était devenu notre bon ami Jean-Jacques. Il se déplaça, ruissela, coula jusqu'aux caissons frigorifique où il reprit sa forme et se para de mille couleurs à l'aide des différents parfums de glace !
+
+Mais il grandit et grandit jusqu'à atteindre la hauteur du bâtiment, et ce bonhomme tout mignon tout plein se transforma en gloutton cannibale anthropophage tel le Bibendum marshmallow de Ghostbusters! :astonished:
 
 ###### (a vous la suite) <--- a supprimer bien sur avant de la rajouter à la fin de votre ajout 
 
