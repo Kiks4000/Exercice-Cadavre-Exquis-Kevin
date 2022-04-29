@@ -12,6 +12,8 @@ Il rencontra d'autres personnes, toutes venaient d'endroit et de milieu différe
 Ensemble, ils découvrairent l'environnement linux et ses commandes, git et Github, le markdown.<br/>
 Il y a juste un problème, c'est que chez becode, il fait chaud.. Et chaleur plus neige, ça ne fait pas bon ménage.. <br/>
 
+Jean-Jacques ce Mis à fondre et fondre, aux files des heurts le petit bonhomme de neige n'etais plus qui flaque d'eau et de neige fondu plus personne ne neigut attention à lui quand soudain 
+
 ###### (a vous la suite) <--- a supprimer bien sur avant de la rajouter à la fin de votre ajout 
 
 
