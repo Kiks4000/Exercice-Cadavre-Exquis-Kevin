@@ -16,6 +16,8 @@ Jean-Jacques ce Mis à fondre et fondre, aux files des heurts le petit bonhomme 
 
 La musique tant réconfortante et nostalgique du marchand de glace se fit entendre. Cette musique si entêtante attira à elle par son enfantine magie la flaque qu'était devenu notre bon ami Jean-Jacques. Il se déplaça, ruissela, coula jusqu'aux caissons frigorifique où il reprit sa forme et se para de mille couleurs à l'aide des différents parfums de glace !
 
+Mais il grandit et grandit jusqu'à atteindre la hauteur du bâtiment, et ce bonhomme tout mignon tout plein se transforma en gloutton cannibale anthropophage tel le Bibendum marshmallow de Ghostbusters! :astonished:
+
 ###### (a vous la suite) <--- a supprimer bien sur avant de la rajouter à la fin de votre ajout 
 
 
